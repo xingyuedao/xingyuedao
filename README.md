@@ -1,4 +1,4 @@
-<img width="1440" height="1350" alt="45465" src="https://github.com/user-attachments/assets/fb1d19cd-8cbb-48ba-b075-d08fd1e54987" />
+![](https://file.garden/ZvN3i8o8RW_wobj3/Camera_XHS_17813633795961040g008321bglu5pnu405p78dh1gachnjr7df5o.jpg)
 
-
-hello
+jae / fluo 。⠀⠀femme terms ⠀int ok!
+[strawpage](https://augurybird.straw.page)⠀⠀⠀[prns page](https://en.pronouns.page/@augurybird)⠀⠀[twitter](https://x.com/pikantelope)
